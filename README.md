@@ -6,4 +6,4 @@ Currently, I am studying web and mobile app development, cybersecurity, machine 
 
 #### Connect with me
 - 💼 LinkedIn : https://www.linkedin.com/in/benony-gabriel-41b82a265/
-- 💢 Instagram: https://www.instagram.com/_ben0_0_/
+- 💢 Instagram : https://www.instagram.com/_ben0_0_/
